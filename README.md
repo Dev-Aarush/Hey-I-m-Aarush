@@ -1,2 +1,2 @@
-# Hey-I-m-Aarush
+# Hey , I'm Aarush
 About Me 
